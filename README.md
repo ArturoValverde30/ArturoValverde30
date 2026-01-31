@@ -1,4 +1,4 @@
-## Hi there 👋
+## Telecommunications Engineering student| seeking internship opportunities | Cybersecurity | Cloud Azure |
 
 <!--
 **ArturoValverde30/ArturoValverde30** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
